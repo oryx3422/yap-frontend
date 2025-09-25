@@ -14,7 +14,8 @@
 
 24.09.2025 - 55%
 
-25.09.2025 - __% / completed posmotri-v-okno
+25.09.2025 - 57% / completed posmotri-v-okno
+
 
 
 
